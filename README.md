@@ -1,0 +1,2 @@
+# RESPONSIVE-CV-WEBPAGE-DESIGN
+In today's video, I am going to show you how to make a resume website in 2020.  As you may know, it's getting harder and harder to get AWESOME jobs simply by applying online.  You have to stand out from your peers, and one way to do that is to create a personal website.   Why? Simply because you get to show off your past work and projects and can actually prove what you're saying in your resume or LinkedIn profile.
